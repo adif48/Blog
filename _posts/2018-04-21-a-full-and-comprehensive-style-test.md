@@ -110,5 +110,3 @@ Maruku
     <div id="awesome">
       <p>This is great isn't it?</p>
     </div>
-
-{% youtube "https://www.youtube.com/watch?v=bty7LHm14CA" %}
