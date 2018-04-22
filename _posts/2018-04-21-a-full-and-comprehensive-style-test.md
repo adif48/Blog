@@ -11,8 +11,6 @@ Below is just about everything you'll need to style in the theme. Check the sour
 
 ---
 
-{% youtube "https://www.youtube.com/watch?v=iWowJBRMtpc" %}
-
 ## 1. Header 
 
 # Header 1
