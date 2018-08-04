@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Testing Readability with a Bunch of Text"
-tags: [sample post, readability, test, intro]
+title: "Contoh"
+tags: [sample post, contoh, testing, intro]
 comments: true
 ---
 
