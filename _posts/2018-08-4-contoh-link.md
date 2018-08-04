@@ -48,10 +48,13 @@ Aliquip enim artisan dolor post-ironic. Pug tote bag Marfa, deserunt pour-over P
 
 Lagi duduk sambil nulis artikel ini
 {: .right}
+
 4 August 2018
 {: .right}
+
 On Office Cipta Raharja
 {: .right}
+
 Giriwoyo, Wonogiri
 {: .right}
 
