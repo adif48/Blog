@@ -46,7 +46,7 @@ Occupy et selvage squid, pug brunch blog nesciunt hashtag mumblecore skateboard 
 
 Aliquip enim artisan dolor post-ironic. Pug tote bag Marfa, deserunt pour-over Portland wolf eu odio intelligentsia american apparel ugh ea. Sunt viral et, 3 wolf moon gastropub pug id. Id fashion axe est typewriter, mlkshk Portland art party aute brunch. Sint pork belly Cosby sweater, deep v mumblecore kitsch american apparel. Try-hard direct trade tumblr sint skateboard. Adipisicing bitters excepteur biodiesel, pickled gastropub aute veniam.
 
-Lagi duduk sambil nulis artikel ini
+just sit and writing this worst article
 {: .right}
 4 August 2018
 {: .right}
