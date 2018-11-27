@@ -7,7 +7,7 @@ comments: true
 
 Setelah berjuang keluar dari kepribadian introvert
 
-![](https://s.kaskus.id/images/2018/01/31/10077443_20180131020827.jpg)
+![](https://raw.githubusercontent.com/adif48/adif48.github.io/master/assets/img/kepribadian.jpg)
 
 Ini tulisan pertama saya di blog ini setelah hampir 3 tahun pensiun menulis 
 
