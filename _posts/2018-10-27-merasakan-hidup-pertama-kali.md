@@ -5,7 +5,7 @@ tags: [Lifestyle]
 comments: true
 ---
 
-Pertama kalinua merasakan yang namanya indahnya dunia
+Pertama kalinya merasakan yang namanya indahnya dunia
 
 ![](https://raw.githubusercontent.com/adif48/adif48.github.io/master/assets/img/kepribadian.jpg)
 
