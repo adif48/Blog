@@ -22,8 +22,8 @@ avatar: https://raw.githubusercontent.com/adif48/blog/gh-pages/images/uraraka.pn
 navigation:
   - name: Home
     url: https://adif.tech
-  - name: About
-    url: /about
+  - name: Now
+    url: /now
   - name: Archive
     url: /archive
   - name: Tags
