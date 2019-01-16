@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Pertama Kalinya Merasakan Hidup"
+title: "Perubahan Meninggalkan Kepribadian Introvertku"
 tags: [Lifestyle]
 comments: true
 ---
@@ -24,25 +24,26 @@ seorang suami dari saya di perut sampai sekarang umur 21, Big Thanks for you mom
 
 Apa sih introvert? apakah kepribadian introvert itu pendiam, tertutup, pemurung? tapi tidak semua introvert seperti itu gan, contohnya saya sekarang yang akhir-akhir ini sedikit berubah, saya masih introvert cuma bedanya sekarang sudah bisa sedikit ngomong, tidak takut keramaian.
 
+## Awal Mula Menjadi Berani
+
 Saya yang awalnya pendiam jarang ngomong, suka menyendiri dikamar, bisa berubah seperti ini karena pekerjaan mengharuskan saya berubah seperti ini, saya sekarang sudah bisa sedikit ngomong, berani sama orang, berani di keramaian, dan berkat itu sekarang hidup saya sudah sedikit mulai berwarna.
 
-## Mencoba Memberanikan Diri
+## Perubahan
 
-Setelah bla bla bla
+Setelah saya sedikit menjadi pemberani, hidupku sedikit berubah, yang awalnya teman cuma online dan itupun temen musiman kalau ada maunya saja kalau datang, hi apa kabar kalian wkwkwk, tapi sekarang setelah berubah saya mempunyai teman di dunia nyata.
 
-* Grogi
-* Panas Dingin
-* Malu
+Selain mendapatkan teman, hidupku sekarang bukan cuma dikamar di depan laptop karena sekarang kadang di ajak jalan2 sama bos jadi sedikit mengenal dunia luar, dulu aku pernah berpikir aku sudah bisa semua, tapi masih banyak, banyak sekali yang belum aku tahu.
 
-Tapi.....
+Sedikit demi sedikit hidupku menjadi berwarna dan berubah menjadi berwarna lagi setelah penantian 20 tahun lebih, akhirnya mendapatkan calon temen hidup hehe.
 
+Sekian artikel dari kali ini, saya akan melanjutkanya di artikel selanjutnya.
 
-just sit and writing this worst article
+just sit and writing this article
 {: .right}
-15 Des 2018
+16 January 2019
 {: .right}
-At the office Cipta Raharja
+At Home
 {: .right}
-Giriwoyo, Wonogiri
+Pelem, Pracimantoro, Wonogiri
 {: .right}
 
