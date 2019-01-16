@@ -10,7 +10,7 @@ permalink: "/now/"
 Pracimantoro, Wonogiri
 
 ### Professional title:
-Senior Software Engineer and Scrum Master
+Don't Have Professional Skill
 
 ### What do you do?
 I live and work with passion.
