@@ -44,6 +44,8 @@ just sit and writing this article
 {: .right}
 At Home
 {: .right}
+Playing Song "Simple Plan - Perfect"
+{: .right}
 Pelem, Pracimantoro, Wonogiri
 {: .right}
 
