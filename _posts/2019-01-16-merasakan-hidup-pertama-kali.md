@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Perubahan Meninggalkan Kepribadian Introvertku"
-tags: [Lifestyle]
+tags: [StoryLife]
 comments: true
 ---
 
