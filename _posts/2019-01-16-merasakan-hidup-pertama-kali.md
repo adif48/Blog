@@ -34,7 +34,7 @@ Setelah saya sedikit menjadi pemberani, hidupku sedikit berubah, yang awalnya te
 
 Selain mendapatkan teman, hidupku sekarang bukan cuma dikamar di depan laptop karena sekarang kadang di ajak jalan2 sama bos jadi sedikit mengenal dunia luar, dulu aku pernah berpikir aku sudah bisa semua, tapi masih banyak, banyak sekali yang belum aku tahu.
 
-Sedikit demi sedikit hidupku menjadi berwarna dan berubah menjadi berwarna lagi setelah penantian 20 tahun lebih, akhirnya mendapatkan calon temen hidup hehe.
+Sedikit demi sedikit hidupku menjadi berwarna dan berubah menjadi sangat berwarna lagi setelah penantian 20 tahun lebih, akhirnya mendapatkan calon temen hidup hehe.
 
 Sekian artikel dari kali ini, saya akan melanjutkanya di artikel selanjutnya.
 
