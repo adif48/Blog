@@ -10,13 +10,17 @@ permalink: "/now/"
 Pracimantoro, Wonogiri
 
 ### Professional title:
-Don't Have Professional Skill
+Admin Bus, Blogger
 
 ### What do you do?
 I live and work with passion.
 
 ### Why?
 I love make people happy.
+
+### Now
+
+Right now I'm really enjoying "My Life".
 
 
 ### Contact me
