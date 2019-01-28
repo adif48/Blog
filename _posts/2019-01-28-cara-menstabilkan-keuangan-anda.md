@@ -6,8 +6,6 @@ comments: true
 ---
 4 Cara Menstabilkan Kondisi Keuangan Kamu
 
-![](https://raw.githubusercontent.com/adif48/blog/gh-pages/images/enterprenuer-life.png)
-
 Dalam beberapa hari terakhir saya amati beberapa para enterpreneur dalam mengatasi keuangan mereka
 dalam disimplin mengelola keuangan mereka seperti dibawah ini
 
