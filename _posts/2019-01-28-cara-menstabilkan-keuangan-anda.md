@@ -4,7 +4,6 @@ title: "4 Hal Yang Dapat Menstabilkan Kondisi Keuangan Anda"
 tags: [FinancialLife]
 comments: true
 ---
-
 4 Cara Menstabilkan Kondisi Keuangan Kamu
 
 ![](https://raw.githubusercontent.com/adif48/blog/gh-pages/images/enterprenuer-life.png)
@@ -24,7 +23,6 @@ dari penghasilan mereka, dan jangan2 itu bukan penghasilan utama mereka, tapi da
 mereka bisa punya gaya hidup yang mewah.
 Jadi intinya hemat itu harus dilakukan, dan jangan boros, jangan beli seuatu yang tidak perlu.
 
-
 ## Membuat Pembukuan
 
 Dan yang ketiga, mereka biasa membuat pembukuan, maksud saya anda tidak perlu membuat neraca seperti
@@ -36,7 +34,7 @@ biasakan disiplin, tulis pengeluaran anda dari yang kecil sampai besar.
 Tapi kebiasaan ini kalau tidak pernah anda biasakan dari yang kecil, niscaya jika anda punya perusahaan sebesar apapun
 pasti akan keuangan anda akan amburadul.
 
-## Priorita
+## Prioritas
 
 Yang keempat adalah prioritas, jadi maksudnya prioritas itu apa, para enterprenuer yang sukses itu pasti punya prioritas
 ketika mereka punya membutuhkan barang dan ini nilai inverstasinya bagus, dan barang2 ini bisa menghasilkan uang lebih
