@@ -36,7 +36,7 @@ biasakan disiplin, tulis pengeluaran anda dari yang kecil sampai besar.
 Tapi kebiasaan ini kalau tidak pernah anda biasakan dari yang kecil, niscaya jika anda punya perusahaan sebesar apapun
 pasti akan keuangan anda akan amburadul.
 
-## Priorita
+## Prioritas
 
 Yang keempat adalah prioritas, jadi maksudnya prioritas itu apa, para enterprenuer yang sukses itu pasti punya prioritas
 ketika mereka punya membutuhkan barang dan ini nilai inverstasinya bagus, dan barang2 ini bisa menghasilkan uang lebih
