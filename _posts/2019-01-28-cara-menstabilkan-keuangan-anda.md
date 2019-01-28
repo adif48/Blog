@@ -5,7 +5,7 @@ tags: [FinancialLife]
 comments: true
 ---
 
-Kali ini saya akan membahas 4 kebiasan yang dapat menstabilkan kondisi keuangan kamu
+4 Cara Menstabilkan Kondisi Keuangan Kamu
 
 ![](https://raw.githubusercontent.com/adif48/blog/gh-pages/images/enterprenuer-life.png)
 
