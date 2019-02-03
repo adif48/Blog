@@ -3,7 +3,7 @@ layout: post
 title: Lakukan Hal Ini Jika Hidupmu Merasa Gabut
 comments: true
 tags:
-  - Gabut
+  - GabutLife
   - LifeStyle
 ---
 
