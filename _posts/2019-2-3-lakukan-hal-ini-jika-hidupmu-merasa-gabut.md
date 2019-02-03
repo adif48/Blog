@@ -11,14 +11,14 @@ Pernah gak sih kamu akhir-akhir ini merasa hidupmu sangat gabut
 
 ![](https://raw.githubusercontent.com/adif48/blog/gh-pages/images/gabut.jpg)
 
-Pernah gak sih kamu akhir-akhir ini merasa hidup lo sangat gabut sampai-sampai waktumu terbuang sia-sia
+Pernah gak sih kamu akhir-akhir ini merasa hidup lo sangat gabut sampai-sampai waktumu terbuang sia-sia,
 jika kamu mengalaminya sekarang, semoga artikel ini dapat membantu mengatasi kegabutan hidup lo.
 
 Dibawah ini gue akan menulis beberapa hal yang harus lo lakuin saat kegabutan menyerang hidup lo:
 
 ## - Membaca
 
-Hal yang sangat penting yang anak muda jaman sekarang sudah malas melakukan hal ini seperti gue hehe
+Hal yang sangat penting yang anak muda jaman sekarang sudah malas melakukan hal ini seperti gue hehe,
 membaca bukan hanya buku saja, di jaman era digital sekarang membaca bisa artikel-artikel yang bertebaran
 di internet.
 
@@ -39,8 +39,8 @@ dan jika lo belum punya pekerjaan kamu bisa mencari cara mendirikan usaha sesuat
 
 ## - Berak
 
-Maaf sedikit jorok, tapi jangan berpikiran negatif dulu, sebenarnya ada manfaat lain dari berak
-pernah gak sih lo mikir pas dikamar mandi lagi berak terus muncul ide-ide
+Maaf sedikit jorok, tapi jangan berpikiran negatif dulu, sebenarnya ada manfaat lain dari berak!
+pernah gak sih lo mikir pas dikamar mandi lagi berak terus muncul ide-ide,
 
 nah setelah kamu selesai berak, jangan lupa ide yang lo dapat tadi langsung kamu terapkan.
 
