@@ -3,6 +3,10 @@ layout: post
 title: "Perubahan Meninggalkan Kepribadian Introvertku"
 tags: [StoryLife]
 comments: true
+image: https://raw.githubusercontent.com/adif48/adif48.github.io/master/assets/img/kepribadian.jpg
+canonical: "/blog/amp/2019/01/16/merasakan-hidup-pertama-kali-amp.html"
+amp_path: "2019-01-16-merasakan-hidup-pertama-kali.md"
+amp_skip: false
 ---
 
 Pertama kalinya merasakan yang namanya indahnya dunia
