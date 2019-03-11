@@ -102,6 +102,7 @@ plugins:
   - jekyll-paginate
   - jekyll-youtube
   - jekyll-admin
+  - amp-jekyll
 
 # Exclude these files from your production _site
 exclude:
